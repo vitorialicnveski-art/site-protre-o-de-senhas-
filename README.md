@@ -1,0 +1,1 @@
+https://account-armor-pro.lovable.app/
